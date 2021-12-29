@@ -1,0 +1,1 @@
+# Indikator-Status-baterai-12V
